@@ -2,7 +2,7 @@
 
 
 - 🔭 I’m currently enhancing my skills
-- 👯 I’m looking to collaborate on WEB-DEVOLOPEMENT Projects
+- 👯 I’m looking to collaborate on WEB-DEVELOPEMENT Projects
 - 📫 How to reach me: Twitter[@Jayeshpatil003](https://twitter.com/Jayeshpatil003)
 
 
